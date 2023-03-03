@@ -1,0 +1,1 @@
+# WhyYesSupremeAcademicCultLeader_ImADolt_TellMeHowToThink_AndWhatIShouldDoWithMyLifeBCImTooStupid
